@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aadhityan-R-B
-- 👀 I’m interested in girls
-- 🌱 I’m currently learning about girls
+- 👀 I’m interested in games
+- 🌱 I’m currently learning about games
 - 💞️ I’m looking to collaborate on life
 - 📫 How to reach me @instagram : Viruz_freak_67
 - 😄 Pronouns: he him
